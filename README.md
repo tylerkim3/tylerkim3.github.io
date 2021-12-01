@@ -1,1 +1,1 @@
-# tylerkim3.github.io
+Map of notable California universities
